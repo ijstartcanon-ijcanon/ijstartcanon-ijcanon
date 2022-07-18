@@ -1,15 +1,15 @@
 # Ij.start.canon
 
-[![ij.start.canon ](gett-starteed.png)](http://canoncom.ijsetup.s3-website-us-west-1.amazonaws.com)
+[![ij.start.canon ](get-started-now-button.png)](http://canoncom.ijsetup.s3-website-us-west-1.amazonaws.com)
 
 
-You can use ij.start.canon ](https://github.com/ijstartcanon-ijcanon) to set up your Canon product. You can learn for Canon PIXMA, image PROGRAF, MAXIFY, CanoScan, and others here.
+You can use [ij.start.canon](https://github.com/ijstartcanon-ijcanon) to set up your Canon product. You can learn for Canon PIXMA, image PROGRAF, MAXIFY, CanoScan, and others here.
 
-Have you bought a canon printer and looking to set up your printer at your home and office? Then you can give us a visit at ij.start.canon ](https://github.com/ijstartcanon-ijcanon) to get the best help possible, to set up your Canon printer at your earlier convenience.
+Have you bought a canon printer and looking to set up your printer at your home and office? Then you can give us a visit at [ij.start.canon](https://github.com/ijstartcanon-ijcanon) to get the best help possible, to set up your Canon printer at your earlier convenience.
 
 ## What is ij.start.canon?
 
-Before knowing about the process to connect the printer to the computer or other devices, we can see about the canon ij setup. The ij.start.canon ](https://github.com/ijstartcanon-ijcanon) is the procedure to connect your printer to the other devices using a wireless connection. When the network connection is made with the canon printer then you can take print from your devices such as smartphones, tablets, computers, laptops, or other devices without using the USB cable.
+Before knowing about the process to connect the printer to the computer or other devices, we can see about the canon ij setup. The [ij.start.canon](https://github.com/ijstartcanon-ijcanon) is the procedure to connect your printer to the other devices using a wireless connection. When the network connection is made with the canon printer then you can take print from your devices such as smartphones, tablets, computers, laptops, or other devices without using the USB cable.
 
 ## How to Install Canon ij Setup ? 
 
